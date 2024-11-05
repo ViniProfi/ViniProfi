@@ -6,6 +6,7 @@
 - 💬 Pergunte-me sobre qualquer coisa, tentarei te responder do melhor jeito possível.
 - ⚡ Curiosidade: Gosto de atividades físicas.
 
+![](https://media1.tenor.com/m/fNmEt7ob4A8AAAAd/skeleton-spin.gif)
 ![](https://media1.tenor.com/m/xrdswoQPd_8AAAAC/barcelona-lewa.gif)
 
 - 📫 Como entrar em contato comigo:
